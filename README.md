@@ -1,1 +1,0 @@
-# cybersecurity-first-task
